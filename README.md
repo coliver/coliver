@@ -2,5 +2,4 @@
 - 👀 I’m interested in music, games, and tech
 - 🌱 I’m currently learning how to be a dad
 - 💞️ I’m looking to collaborate on home organization strategies
-- 📫 twit - @iamchrisoliver 
-- 
+- 📫 twit - @iamchrisoliver
